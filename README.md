@@ -1,4 +1,3 @@
-### Hi there 👋
 
 Passionate Software Engineer | Transforming Ideas into Digital Reality
 
